@@ -1,1 +1,1 @@
-estimate the value
+digit colors and note
