@@ -1,1 +1,1 @@
-Arithmetic
+symbols on paper
