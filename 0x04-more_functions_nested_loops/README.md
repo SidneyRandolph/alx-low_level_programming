@@ -1,1 +1,1 @@
-Triangles
+Arithmetic
