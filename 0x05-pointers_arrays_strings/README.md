@@ -1,1 +1,1 @@
-lies told about me
+Winning is only half of it
