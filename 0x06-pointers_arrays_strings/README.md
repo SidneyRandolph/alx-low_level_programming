@@ -1,1 +1,1 @@
-strcmp
+I am paranoid
