@@ -1,1 +1,1 @@
-Noise is buffer
+magic
