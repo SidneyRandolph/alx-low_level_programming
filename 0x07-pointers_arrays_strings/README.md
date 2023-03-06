@@ -1,1 +1,1 @@
-Chess is a mental torture
+The line of life
