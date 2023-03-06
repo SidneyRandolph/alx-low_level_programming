@@ -1,1 +1,1 @@
-Double pointer
+primary goal of hacking
