@@ -1,1 +1,1 @@
-The line of life
+Double pointer
