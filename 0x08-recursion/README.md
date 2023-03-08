@@ -1,1 +1,1 @@
-Once an idea has taken hold of the brain its almost impossible to eradicate
+ Your subconscious is looking for the dreamer
