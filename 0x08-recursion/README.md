@@ -1,1 +1,1 @@
-You mustnt be afraid to dream a little bigger darling
+Once an idea has taken hold of the brain its almost impossible to eradicate
